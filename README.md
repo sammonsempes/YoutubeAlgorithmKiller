@@ -24,6 +24,4 @@ User-Friendly Interface: With its simple and intuitive design, YouTubeAlgorithmK
 
 Seamless Integration: The extension integrates seamlessly with the YouTube platform, providing a smooth and uninterrupted browsing experience.
 
-Regular Updates: The YouTubeAlgorithmKiller team is dedicated to providing regular updates, ensuring that the extension remains compatible with the latest YouTube features and enhancements.
-
 Take back control of your YouTube browsing and enjoy a curated experience tailored to your interests. Download YouTubeAlgorithmKiller today, and transform the way you consume content on the world's most popular video-sharing platform.
